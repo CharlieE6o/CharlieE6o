@@ -1,2 +1,6 @@
 im WORKING.
-![image alt][image_url](https://media.tenor.com/ljAhxtP1WIEAAAAM/soap-soap-mactavish.gif)
+
+![image alt][(image_url](https://media.tenor.com/07ynAUIdns0AAAAM/redfox9a-phillip-graves.gif))
+
+<img width="220" height="137" alt="obraz" src="https://github.com/user-attachments/assets/c1922ddf-9c9d-477f-8d25-2a3097e560c8" />
+
