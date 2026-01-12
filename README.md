@@ -1,8 +1,2 @@
-![Image](https://files.catbox.moe/p3kyv2.png[/img])
-
-![Image](https://github.com/user-attachments/assets/940beec4-164f-4734-b059-acbba6d1cff0)
-
-palce holder dawg i will DO it one dayi PROMISE!!!
-
-![Image](https://github.com/user-attachments/assets/46208075-ed4a-43bd-9f0e-c8bd1deafd8b)
+![Image]<img width="800" height="800" alt="Image" src="https://github.com/user-attachments/assets/ad426d2c-b357-43e2-8e04-2a971c9fe541" />
 
