@@ -7,4 +7,4 @@ hi
 my sp https://hilsonpls.straw.page/
 
 
-C:\Users\KOMP2\Desktop\1 wilson\Untitled1.png
+<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/285596dd-0a01-4694-a3b7-18ce7f9be57a" />
