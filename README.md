@@ -4,7 +4,6 @@
 hi 
 
 
-https://hilsonpls.straw.page/
+![https://hilsonpls.straw.page/]sp
 
-
-<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/d53c7d34-eb51-4e64-8d4c-b2ab5652127f" />
+![Image](https://github.com/user-attachments/assets/e08e3a10-9fbd-43f1-bc02-c95d11fca333)
