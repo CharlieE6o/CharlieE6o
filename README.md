@@ -1,4 +1,4 @@
-<img width="250" height="300" alt="Image" src="https://github.com/user-attachments/assets/33ac2dfb-655c-466a-b40f-37404a2bf1c4" />
+<img width="900" height="1200" alt="Image" src="https://github.com/user-attachments/assets/33ac2dfb-655c-466a-b40f-37404a2bf1c4" />
 
 
  STRAWPAGE (https://hilsonpls.straw.page/    ( wip
