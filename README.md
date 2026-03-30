@@ -10,4 +10,3 @@ the colors dont match to my pfp but i DONT XARE RIGHT NOW!!! i will do it LATER 
  
 
 
-RENTRY : https://rentry.co/sleepingcanines (wip 
