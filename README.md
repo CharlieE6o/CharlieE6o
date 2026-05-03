@@ -9,4 +9,4 @@ the colors dont match to my pfp but i DONT XARE RIGHT NOW!!! i will do it LATER 
 
  
 
-pls stop spreaind misinfo about me ok
+WHAT is this MASS CHARLIE UNFOLLOWING !!!!!! ( i have only lost 2 today butok..)
