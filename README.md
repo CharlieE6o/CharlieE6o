@@ -5,8 +5,4 @@ note to u boi ; i am an early sys, have c-ptsd and audhd and i am genrally unsta
 
 the colors dont match to my pfp but i DONT XARE RIGHT NOW!!! i will do it LATER !!!
 
-<img ["https://github.com/user-attachments/assets/22d5789b-1d83-4397-bf30-4d4fce2d74ee"] />
-
- 
-
-WHAT is this MASS CHARLIE UNFOLLOWING !!!!!! ( i have only lost 2 today butok..)
+https://github.com/user-attachments/assets/8d15b7ee-54ff-411d-8d83-196aa31ab4d8
