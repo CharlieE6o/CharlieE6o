@@ -1,8 +1,7 @@
 [strawpage](https://hilsonpls.straw.page/) 　　　　　　[rentry](https://rentry.co/sleepingcanines)
 
-note to u boi ; i am an early sys, have c-ptsd and audhd and i am genrally unstable at times just a wanring ! 
+<img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/0e2e69b6-589d-4367-90c3-42553414c3d7" />
 
+i fele happy
 
-the colors dont match to my pfp but i DONT XARE RIGHT NOW!!! i will do it LATER !!!
-
- 　　　　　　 　　　　　　 　　　　　　<img width="234" height="224" alt="Image" src="https://github.com/user-attachments/assets/0214c130-3d4a-4aeb-9646-1ee2b793dad3" />
+<img width="816" height="623" alt="Image" src="https://github.com/user-attachments/assets/11c5cf41-9d33-4b88-b03f-459193a64207" />
