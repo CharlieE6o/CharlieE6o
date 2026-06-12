@@ -1,7 +1,12 @@
-[strawpage](https://hilsonpls.straw.page/) 　　　　　　[rentry](https://rentry.co/sleepingcanines) 　　　　　　[ata](https://canniballove.atabook.org/)
+<p align="center">
+    <img src="[https://files.catbox.moe/4ffyu5.png]">
+</p>
+<p align="center">
+    $\color{#e1e5ec}{cannibal~love~doctor~is~coming,}$ $\color{#805464}{don't~run!~~~~~~~~}$
+  <p/>
+<p align="center">
+    <img src="(https://files.catbox.moe/xkvair.png)">
+</p>
+<p align="center">
+    <a href="https://canniballove.atabook.org/">atabook<a/>⠀⠀<a href="https://hilsonpls.straw.page/">strawpage<a/>⠀⠀<a href="https://rentry.co/sleepingcanines">rentry<a/>
 
-<img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/0e2e69b6-589d-4367-90c3-42553414c3d7" />
-
-i fele happy
-
-<img width="816" height="623" alt="Image" src="https://github.com/user-attachments/assets/11c5cf41-9d33-4b88-b03f-459193a64207" />
